@@ -1,16 +1,17 @@
-## Hi there 👋
+<p align="center">
+stolen from @Oceavnn for now
+<br><br>
+<br><br>➤ Taph / One / Ocean, a creature of many names | He(<a href="https://en.pronouns.page/@Oceavnn">/</a>)it/+neos | 18
+<br>➤ Whisper to Int! I tend to go off tab a lot, and if you dont whisp, i will probably miss ur message .:}
+<br>➤ Usually chillin with <a href="https://github.com/RIDLEYISM">Rhys</a> , <a href="https://github.com/Sharksters">Sharkie</a> on the 18+ server! Sometimes i chill on Safe, though its rare.. </a>
+<br> 
+<br>
+  <br> <a href="https://rentry.co/_ATYCHIPHOBIA">Rentry</a> (Subspace Themed)
+<br> <a href="https://rentry.co/__partyguest"> Rentry </a> (Pest Themed) 
+<br>
 
-<!--
-**nnightshade/nnightshade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<br>
+<br>
+<br>
+<br>
+<a href="https://github.com/Sharksters">Sharkie was here :3</a>
