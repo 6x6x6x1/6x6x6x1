@@ -1,13 +1,13 @@
 <p align="center">
-stolen from @Oceavnn for now
+cb4 t0 mak3 this pr3tty rn, s0rry l0l
 <br><br>
-<br><br>➤ Taph / One / Ocean, a creature of many names | He(<a href="https://en.pronouns.page/@Oceavnn">/</a>)it/+neos | 18
-<br>➤ Whisper to Int! I tend to go off tab a lot, and if you dont whisp, i will probably miss ur message .:}
-<br>➤ Usually chillin with <a href="https://github.com/RIDLEYISM">Rhys</a> , <a href="https://github.com/Sharksters">Sharkie</a> on the 18+ server! Sometimes i chill on Safe, though its rare.. </a>
+<br><br>➤ Night/Nightshade, th0ugh i g0 by s0 m4ny nam3s l0l. //  H3(<a href="https://en.pronouns.page/@Oceavnn">/</a>)it/+ 4ny ne0s // 18
+<br>➤ wh1sper if u w4nt to msg m3 l0l. 1 t3nd t0 go offt4b, 4nd ch3ck my messages 0ccasionally wh3n i can. .:}
+<br>➤ usually h4ng1ng w1th <a href="https://github.com/OFFICERCHAMBERS">rhysgann</a> 0r <a href="https://github.com/Sharksters">xyriii</a> 0n 18+, usually 3ither near docks or sp4wn. i l1ke... v3ry rar3ly g0 0nto safe. </a>
 <br> 
 <br>
-  <br> <a href="https://rentry.co/_ATYCHIPHOBIA">Rentry</a> (Subspace Themed)
-<br> <a href="https://rentry.co/__partyguest"> Rentry </a> (Pest Themed) 
+  <br> <a href="https://rentry.co/_ATYCHIPHOBIA">R3ntry 1 </a> (Subsp4ce Th3med)
+<br> <a href="https://rentry.co/__partyguest"> R3ntry 2 </a> (P3st Th3med) 
 <br>
 
 <br>
