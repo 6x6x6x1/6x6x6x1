@@ -6,7 +6,7 @@ cb4 t0 mak3 this pr3tty rn, s0rry l0l
 <br>➤ usually h4ng1ng w1th <a href="https://github.com/OFFICERCHAMBERS">rhysgann</a> 0r <a href="https://github.com/Sharksters">xyriii</a> 0n 18+, usually 3ither near docks or sp4wn. i l1ke... v3ry rar3ly g0 0nto safe. </a>
 <br> 
 <br>
-  <br> <a href="https://rentry.co/__1x1x1x1">1x1x1x1 R3ntry  </a> (major wip, p0ssible 3yestra1n w4rning.)
+  <br> <a href="https://rentry.co/__1x1x1x1">1x1x1x1 R3ntry  </a> (p0ssible 3yestra1n w4rning.)
 <br>
 
 <br>
