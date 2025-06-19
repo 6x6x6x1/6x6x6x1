@@ -7,7 +7,7 @@ cb4 t0 mak3 this pr3tty rn, s0rry l0l
 <br> 
 <br>
   <br> <a href="https://rentry.co/__1x1x1x1"> R3ntry 
-<a href="https://1x11x1x1.straw.page/"> Str4w.pag3
+<br> <a href="https://1x11x1x1.straw.page/"> Str4w.pag3
 <br>
 
 <br>
