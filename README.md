@@ -1,11 +1,8 @@
 real fast thing but hey. <br>
-I g0 by a shit ton of names. good catch4ll 1s Night/Nightshade, 0r the name 0f my skin :] <br>
-1'm usually at d0cks or spawn on 18+, though 1 kinda want t0 migrate t0 the roblox area on occasion, and may s0metimes sit on Safe. Feel free t0 C+H 1f im alone. I like the c0mpany. just d0nt be weird. <br> 
-w0uld pr3fer if under 16s L1mit interactions <br>
+I go by a shit ton of names. good catchall 1s Night/Nightshade, or the name 0f my skin/char im cosplaying :] <br>
+I'm usually at docks or spawn on 18+, sometimes in the roblox/forsaken?? area, and may sometimes(rarely) sit on Safe. Feel free to C+H 1f im alone. I like the company. just dont be weird. <br> 
+would prefer if under 16s limit interactions <br>
 
 <br>
-1 Use He/Him / 1t/its and any neopron0uns. <br>
-I am severely socially awkward so s0rry 1f i d0 not respond. <br>
-1 am 19 y3ars 0ld <br>
-
-<br> occasionally: typ1ng quirk. feel free 2 tell me if 1t gets annoying.
+i Use He/Him / it/its and any neopronouns.  - - https://en.pronouns.page/@Oceavnn  <br>
+I am severely socially awkward so sorry if i do not respond. <br>
